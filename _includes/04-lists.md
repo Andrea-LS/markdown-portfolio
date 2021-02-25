@@ -1,0 +1,11 @@
+- Sabaton
+  - Last man standing
+  - Primo victoria
+  - Attack of the dead men
+- Nightwish
+  - Amaranthe
+  - Crimson skies and deep blue sea
+  - Bye Bye Beautiful
+- Amaranthe
+  - Nexus
+  - Invincible
